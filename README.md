@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi here
+交个朋友吧~ 🌴
+V:Taleyoung 👋
 
 <!--
 **taleyoung/taleyoung** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
